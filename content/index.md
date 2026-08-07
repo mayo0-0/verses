@@ -1,6 +1,9 @@
 ---
-title: Welcome to Quartz
+title: welcome to verses by mayo
 ---
+you have landed on the collection of verses  
+welcome feel free to explore  
+its basically a look inside my mind
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+you WILL find a LOT of sad yapping some hopeful but still sad yapping  
+one or two happy shi and a bit of neutral shit too
