@@ -1,9 +1,9 @@
 ---
 title: welcome to verses by mayo
 ---
-you have landed on the collection of verses  
-welcome feel free to explore  
-its basically a look inside my mind
+you have landed on my collection of verses  
+id call it poetry but it feels awkward, and i dont care about rhymes js symbolism  
+but yeah, welcome feel free to explore  
+its basically a look inside my mind  
 
-you WILL find a LOT of sad yapping some hopeful but still sad yapping  
-one or two happy shi and a bit of neutral shit too
+I separated it into hindi & english 🤷‍♂️

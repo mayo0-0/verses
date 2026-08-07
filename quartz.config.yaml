@@ -1,6 +1,6 @@
 # yaml-language-server: $schema=./quartz/plugins/quartz-plugins.schema.json
 configuration:
-  pageTitle: poem-ish verses by mayo
+  pageTitle: verses by mayo
   pageTitleSuffix: ""
   enableSPA: true
   enablePopovers: true
