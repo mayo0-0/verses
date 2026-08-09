@@ -1,5 +1,5 @@
 look at me, somebody see me...  
-have i gotten invisible?  
+am i invisible?  
 or am i the background noise you ignore?  
 while the fruit grows hardly you notice  
 but when its ripe we all know  
