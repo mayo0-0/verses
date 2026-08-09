@@ -8,7 +8,7 @@ somehow im holding it together
 i cant stay alone, might not survive   
 waiting for help   
 but not grabbing your hand  
-all i make is mistakes   
+all i make are mistakes   
 theres no art no artist theres nothing  
 a skin stretched over blank   
 kill me fast, kill me slow  

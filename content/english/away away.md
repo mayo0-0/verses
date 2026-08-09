@@ -10,6 +10,4 @@ all the sad
 all the memories  
 of the day when my deams dies  
 and since then  
-everything is away]p8}k  
-ñm  
-m5
+everything is away away

@@ -1,7 +1,7 @@
 honesty is a foolish thing  
 why uphold such a thing?  
 landing you in problems all the time  
-in the end you're forced to get a wine  
+in the end you're forced to get wine  
 any old fool can be honest  
 only a smart person is deceitful though   
 deceit is such an awesome thing  

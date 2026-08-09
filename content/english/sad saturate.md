@@ -11,8 +11,8 @@ discount sheeps i cant sleep im nervous
 dont funnel food inside me ill vomit  
 lost my identity in 2019 im a dead man  
 never had self respect in the first place  
-so id rather be dead man  
+so id rather stay dead man  
 good thing im a fucking waste man  
-every time i write shit i get told  
+every time i get told i write shit  
 rather talk to machines than people  
-dont want to bother you with bullshit
+dont want to bother you with my bullshit

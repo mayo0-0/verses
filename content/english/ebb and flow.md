@@ -6,7 +6,7 @@ speak less understand more
 dont let the haze of your past cloud you  
 its a battle without a victory  
 but definitely with a victim & assailant  
-both of which is ~surprise~ you  
+both of which is surprise_surprise_ you  
 check inventory later you have to move  
 dont look what what you lost  
 look at what you do have  
